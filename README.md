@@ -75,8 +75,6 @@ I'm interested in creating practical systems and resources that make SEO researc
 - **Facebook:** [Follow me](https://www.facebook.com/sikandarhayat.dm)
 - **X (Twitter):** [Follow me](https://x.com/sikandarseo1)
 - **WhatsApp:** [Message me](https://wa.me/923098173204)
-- **Portfolio:** [Add your portfolio URL](YOUR_PORTFOLIO_URL)
-- **Email:** Add your professional email address
 
 ---
 
